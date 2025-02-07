@@ -11,7 +11,7 @@
 
 - 📄 Know me more [https://app.luminpdf.com/viewer/635acf7ec8f486ea6a2328a3](https://app.luminpdf.com/viewer/635acf7ec8f486ea6a2328a3)
 
-- ⚡ Fun fact **I am intresting😁**
+- ⚡ Fun fact: **"I once learned to juggle while traveling and it taught me the value of slowing down and being present✨"**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
